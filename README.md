@@ -1,7 +1,7 @@
 Olá, meu nome é @jenario
 - 👀 Estou interessado em .
 - 🌱 Atualmente estou aprendendo.
-- 💞️ Procuro colaborar em .
+- 💞️ Procuro 
 - 📫 Como entrar em contato comigo .
 - 😄 Pronomes: ...
 - ⚡ Curiosidade: ...
